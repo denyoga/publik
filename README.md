@@ -1,0 +1,2 @@
+# publik
+utk semua orang
